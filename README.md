@@ -3,7 +3,6 @@
 ![IMG_20201026_200244](https://user-images.githubusercontent.com/17773224/98174202-420ccd00-1ed3-11eb-86b1-a4731de24c38.jpg)
 ![IMG_20201026_200303](https://user-images.githubusercontent.com/17773224/98174244-59e45100-1ed3-11eb-92d0-bf5a16134a40.jpg)
 ![IMG_20201026_200320](https://user-images.githubusercontent.com/17773224/98174274-64064f80-1ed3-11eb-8bcb-2c68143cdc74.jpg)
-![IMG_20201026_200331](https://user-images.githubusercontent.com/17773224/98174306-6f597b00-1ed3-11eb-89da-8a797c9add19.jpg)
 ![IMG_20201026_200335](https://user-images.githubusercontent.com/17773224/98174335-7bddd380-1ed3-11eb-8ff9-cd4d58aef8aa.jpg)
 ![IMG_20201026_200431](https://user-images.githubusercontent.com/17773224/98174346-8304e180-1ed3-11eb-9681-9512fe153d8e.jpg)
 ![IMG_20201026_200442](https://user-images.githubusercontent.com/17773224/98174367-8a2bef80-1ed3-11eb-8dae-71a2d548a2ad.jpg)
