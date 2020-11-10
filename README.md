@@ -18,13 +18,12 @@ Panelas + brewstand combo <3
 
 **_Caldeirão 50 (80 litros) acompanha fundo falso e chuveiro fly sparge_**
 Esse kit facilita a brassagem ao fazer a lavagem dos grãos dos grãos continuamente, sem a necessidade de mexer a panela e sem perder eficiência.
-![IMG_20201026_200442](https://user-images.githubusercontent.com/17773224/98174367-8a2bef80-1ed3-11eb-8dae-71a2d548a2ad.jpg)
+![IMG_20201026_200518](https://user-images.githubusercontent.com/17773224/98174455-afb8f900-1ed3-11eb-8ae3-dcd9304b8560.jpg)
+![IMG_20201026_200528](https://user-images.githubusercontent.com/17773224/98174471-b6477080-1ed3-11eb-88ac-a9828ded8eea.jpg)
 
 **_Caldeirão 55 (103 litros)  _**
 Panela de fervura do tamanho do nosso maior fermentador, coincidência?
 ![IMG_20201026_200450](https://user-images.githubusercontent.com/17773224/98174433-a7f95480-1ed3-11eb-8adc-b84d2c867712.jpg)
-![IMG_20201026_200518](https://user-images.githubusercontent.com/17773224/98174455-afb8f900-1ed3-11eb-8ae3-dcd9304b8560.jpg)
-![IMG_20201026_200528](https://user-images.githubusercontent.com/17773224/98174471-b6477080-1ed3-11eb-88ac-a9828ded8eea.jpg)
 * * *
 **_Fermentador Damek + freezer Z_**
 Pois bem, aqui está o nosso maior fermentador num kit perfeito com esse freezer que está de motor novo e tem garantia de 3 meses. Coincidência?! Destino!
@@ -33,9 +32,12 @@ Pois bem, aqui está o nosso maior fermentador num kit perfeito com esse freezer
 ![IMG_20201026_202033](https://user-images.githubusercontent.com/17773224/98174550-d0814e80-1ed3-11eb-8ae3-bcf3cacfdd5c.jpg)
 ![IMG_20201026_203403](https://user-images.githubusercontent.com/17773224/98174554-d24b1200-1ed3-11eb-8259-918373e532aa.jpg)
 ![IMG_20201026_203429](https://user-images.githubusercontent.com/17773224/98174558-d414d580-1ed3-11eb-9ba0-908377ee8e7a.jpg)
-![IMG_20201026_203604](https://user-images.githubusercontent.com/17773224/98174566-d6772f80-1ed3-11eb-95fe-bc949cd936a6.jpg)
+
 ![IMG_20201026_203621](https://user-images.githubusercontent.com/17773224/98174571-d9722000-1ed3-11eb-8aea-17689b16935b.jpg)
 ![IMG_20201026_203648](https://user-images.githubusercontent.com/17773224/98174590-df680100-1ed3-11eb-9d0d-a1d0a064bfe3.jpg)
+
+**_freezer ZXY_**
+![IMG_20201026_203604](https://user-images.githubusercontent.com/17773224/98174566-d6772f80-1ed3-11eb-95fe-bc949cd936a6.jpg)
 
 * * *
 **_Freezer preto_**
