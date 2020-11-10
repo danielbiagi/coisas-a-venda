@@ -30,14 +30,14 @@ Pois bem, aqui está o nosso maior fermentador num kit perfeito com esse freezer
 ![IMG_20201026_202013](https://user-images.githubusercontent.com/17773224/98174491-bc3d5180-1ed3-11eb-8302-92cd38b75fd0.jpg)
 ![IMG_20201026_202024](https://user-images.githubusercontent.com/17773224/98174515-c3fcf600-1ed3-11eb-90e9-744735d97afa.jpg)
 ![IMG_20201026_202033](https://user-images.githubusercontent.com/17773224/98174550-d0814e80-1ed3-11eb-8ae3-bcf3cacfdd5c.jpg)
-![IMG_20201026_203403](https://user-images.githubusercontent.com/17773224/98174554-d24b1200-1ed3-11eb-8259-918373e532aa.jpg)
-![IMG_20201026_203429](https://user-images.githubusercontent.com/17773224/98174558-d414d580-1ed3-11eb-9ba0-908377ee8e7a.jpg)
-
+![IMG_20201026_203604](https://user-images.githubusercontent.com/17773224/98174566-d6772f80-1ed3-11eb-95fe-bc949cd936a6.jpg)
 ![IMG_20201026_203621](https://user-images.githubusercontent.com/17773224/98174571-d9722000-1ed3-11eb-8aea-17689b16935b.jpg)
 ![IMG_20201026_203648](https://user-images.githubusercontent.com/17773224/98174590-df680100-1ed3-11eb-9d0d-a1d0a064bfe3.jpg)
 
 **_freezer ZXY_**
-![IMG_20201026_203604](https://user-images.githubusercontent.com/17773224/98174566-d6772f80-1ed3-11eb-95fe-bc949cd936a6.jpg)
+![IMG_20201026_203403](https://user-images.githubusercontent.com/17773224/98174554-d24b1200-1ed3-11eb-8259-918373e532aa.jpg)
+![IMG_20201026_203429](https://user-images.githubusercontent.com/17773224/98174558-d414d580-1ed3-11eb-9ba0-908377ee8e7a.jpg)
+
 
 * * *
 **_Freezer preto_**
