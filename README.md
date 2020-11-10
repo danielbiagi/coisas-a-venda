@@ -55,17 +55,19 @@ Dá pra secar bastante garrafa, sanitizar, e ainda sobra lugar pra por mais umas
 ![IMG_20201026_211341](https://user-images.githubusercontent.com/17773224/98174616-e7c03c00-1ed3-11eb-9ed3-0fd8588cf8c7.jpg)
 
 * * *
-**_Erlenmeyer 5l_**
-"Estou começando a fazer starters"
+**_Erlenmeyer 5l + tela de amianto_**
+"Já sei fazer starters, bora fazer cem litros de breja?"
 ![IMG_20201026_215427](https://user-images.githubusercontent.com/17773224/98174700-0cb4af00-1ed4-11eb-9258-f2ad261d8dfa.jpg)
 
 * * *
 **_chiller de placas (40placas)_**
+VIRGEM
 ![IMG_20201026_211459](https://user-images.githubusercontent.com/17773224/98174622-ea229600-1ed3-11eb-9f8b-283ad47ccc29.jpg)
 ![IMG_20201026_211609](https://user-images.githubusercontent.com/17773224/98174624-ec84f000-1ed3-11eb-85a4-f38457a0de7a.jpg)
 
 * * *
 **_hopspider_**
+Zero bala
 ![IMG_20201026_211719](https://user-images.githubusercontent.com/17773224/98174629-eee74a00-1ed3-11eb-9dc3-dfb174ad5921.jpg)
 ![IMG_20201026_211809](https://user-images.githubusercontent.com/17773224/98174637-f27ad100-1ed3-11eb-9dec-5eef8b1808b0.jpg)
 
@@ -82,19 +84,20 @@ Dá pra secar bastante garrafa, sanitizar, e ainda sobra lugar pra por mais umas
 
 * * *
 **_Chopeira pequena 1 torneira_**
+Com torneira italiana e com 19 m de serpentina em alumínio, sua breja gela na hora.
 ![IMG_20201026_212415](https://user-images.githubusercontent.com/17773224/98174686-08889180-1ed4-11eb-8460-607a28acd6dc.jpg)
 ![IMG_20201026_212440](https://user-images.githubusercontent.com/17773224/98174695-0a525500-1ed4-11eb-91cb-020a6e668d71.jpg)
 
 * * *
 **_Enchedora de contra-fluxo_**
+Nunca utilizado mas boa sorte!
 ![IMG_20201026_215520](https://user-images.githubusercontent.com/17773224/98174706-0e7e7280-1ed4-11eb-8ebb-8fa4e2274f4d.jpg)
 
 * * *
-**_Fogareiro industrial_**
+**_Fogareiro industrial_ + Smart Mash_**
+Está com o Smart Mash (https://www.smartmash.com.br/) instalado e permite que vc brasse carregando a receita e tendo a leitura da temperatura em tempo real.
 ![IMG_20201026_220347](https://user-images.githubusercontent.com/17773224/98174715-10e0cc80-1ed4-11eb-993c-3ecc0f837821.jpg)
 ![IMG_20201026_220355](https://user-images.githubusercontent.com/17773224/98174722-13432680-1ed4-11eb-99d9-0e3f35d6c4db.jpg)
-
-**_Fogareiro industrial c\ botijão_**
 ![IMG_20201026_220400](https://user-images.githubusercontent.com/17773224/98174730-150cea00-1ed4-11eb-9e91-fdfa5d75c371.jpg)
 
 * * *
