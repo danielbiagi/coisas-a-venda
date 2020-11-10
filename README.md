@@ -5,7 +5,7 @@ Sumário:
 
 * * *
 * * *
-**_Brewstand Indupropil_**
+**_Brewstand Indupropil_** ##brewstand
 Esse brewstand fez milhares de litros de cerveja mas está pronto para fazer dezenas de milhares mais. A estrutura comporta panelas até de 103 litros (que também temos para vender), comprando coisas em lote podemos fornecer um desconto bacana. 
 ![IMG_20201026_200244](https://user-images.githubusercontent.com/17773224/98174202-420ccd00-1ed3-11eb-86b1-a4731de24c38.jpg)
 ![IMG_20201026_200303](https://user-images.githubusercontent.com/17773224/98174244-59e45100-1ed3-11eb-92d0-bf5a16134a40.jpg)
