@@ -46,7 +46,7 @@ Panela de fervura do tamanho do nosso maior fermentador, coincidência?
 ![IMG_20201026_200450](https://user-images.githubusercontent.com/17773224/98174433-a7f95480-1ed3-11eb-8adc-b84d2c867712.jpg)
 
 * * *
-**_Chopeira pequena 1 torneira (r$ 200)_**
+**_Chopeira pequena 1 torneira (r$ 200)_ RESERVADO **
 Com torneira italiana e com 19 m de serpentina em alumínio, sua breja gela na hora.
 ![IMG_20201026_212415](https://user-images.githubusercontent.com/17773224/98174686-08889180-1ed4-11eb-8460-607a28acd6dc.jpg)
 ![IMG_20201026_212440](https://user-images.githubusercontent.com/17773224/98174695-0a525500-1ed4-11eb-91cb-020a6e668d71.jpg)
@@ -101,7 +101,7 @@ Pois bem, aqui está o nosso maior fermentador num kit perfeito com esse freezer
 ![IMG_20201203_221728481_MP](https://user-images.githubusercontent.com/17773224/101112888-0ee65800-35bd-11eb-953f-4524e3a2e36a.jpg)
 
 * * *
-**_refrigerador prosdocimo T27 Smile (r$ 160)_**
+**_refrigerador prosdocimo T27 Smile (r$ 160)_ RESERVADO ** 
 ![IMG_20201026_221701](https://user-images.githubusercontent.com/17773224/98174737-176f4400-1ed4-11eb-8e8f-d0661b872092.jpg)
 ![IMG_20201026_221719](https://user-images.githubusercontent.com/17773224/98174739-19d19e00-1ed4-11eb-93b3-650c7195eeaa.jpg)
 ![IMG_20201026_221728](https://user-images.githubusercontent.com/17773224/98174745-1b9b6180-1ed4-11eb-888b-23be38e01219.jpg)
@@ -127,7 +127,7 @@ Está com o Smart Mash (https://www.smartmash.com.br/) instalado e permite que v
 ![IMG_20201026_220400](https://user-images.githubusercontent.com/17773224/98174730-150cea00-1ed4-11eb-9e91-fdfa5d75c371.jpg)
 
 * * *
-**_postmix pin e ball (r$ 400)_**
+**_postmix ball (r$ 400)_ RESERVADO **
 ![IMG_20201203_221352892](https://user-images.githubusercontent.com/17773224/101112771-d21a6100-35bc-11eb-8726-bf4f88aaa3af.jpg)
 ![IMG_20201203_221359577](https://user-images.githubusercontent.com/17773224/101112776-d5ade800-35bc-11eb-8e34-f03202f9af01.jpg)
 ![IMG_20201203_221410648](https://user-images.githubusercontent.com/17773224/101112856-fe35e200-35bc-11eb-8208-ddf87f37224b.jpg)
@@ -145,13 +145,13 @@ Está com o Smart Mash (https://www.smartmash.com.br/) instalado e permite que v
 ![IMG_20201026_212308](https://user-images.githubusercontent.com/17773224/98174682-06bece00-1ed4-11eb-8ca9-d5b8fcfc7a13.jpg)
 
 * * *
-**_bomba magnética 110v (r$ 250)_**
+**_bomba magnética 110v (r$ 250)_ RESERVADO **
 
 ![IMG_20201203_223709153](https://user-images.githubusercontent.com/17773224/101112985-376e5200-35bd-11eb-87e8-6c00aafb426e.jpg)
 ![IMG_20201203_223717949](https://user-images.githubusercontent.com/17773224/101112991-39d0ac00-35bd-11eb-84a6-8b0893cf2a3e.jpg)
 
 * * *
-**_chiller de placas (40placas) (r$ 450)_**
+**_chiller de placas (40placas) (r$ 450)_ RESERVADO **
 VIRGEM
 ![IMG_20201026_211459](https://user-images.githubusercontent.com/17773224/98174622-ea229600-1ed3-11eb-9f8b-283ad47ccc29.jpg)
 ![IMG_20201026_211609](https://user-images.githubusercontent.com/17773224/98174624-ec84f000-1ed3-11eb-85a4-f38457a0de7a.jpg)
