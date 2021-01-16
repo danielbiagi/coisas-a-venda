@@ -134,12 +134,6 @@ Está com o Smart Mash (https://www.smartmash.com.br/) instalado e permite que v
 ![IMG_20201026_212308](https://user-images.githubusercontent.com/17773224/98174682-06bece00-1ed4-11eb-8ca9-d5b8fcfc7a13.jpg)
 
 * * *
-**_bomba magnética 110v RESERVADA (r$ 250)_**
-
-![IMG_20201203_223709153](https://user-images.githubusercontent.com/17773224/101112985-376e5200-35bd-11eb-87e8-6c00aafb426e.jpg)
-![IMG_20201203_223717949](https://user-images.githubusercontent.com/17773224/101112991-39d0ac00-35bd-11eb-84a6-8b0893cf2a3e.jpg)
-
-* * *
 **_chiller de placas (40placas) (r$ 450)_**
 VIRGEM
 ![IMG_20201026_211459](https://user-images.githubusercontent.com/17773224/98174622-ea229600-1ed3-11eb-9f8b-283ad47ccc29.jpg)
