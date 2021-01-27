@@ -65,15 +65,6 @@ Panela de fervura do tamanho do nosso maior fermentador, coincidência?
 **_Enchedora de contra-fluxo (r$ 150)_**
 Nunca utilizado mas boa sorte!
 ![IMG_20201026_215520](https://user-images.githubusercontent.com/17773224/98174706-0e7e7280-1ed4-11eb-8ebb-8fa4e2274f4d.jpg)
-* * *
-**_Fermentador Damek 120L (r$ 500) + freezer brastemp quality frost free 310 (Motor novo+revisão feita)(r$ 600)_**
-Pois bem, aqui está o nosso maior fermentador num kit perfeito com esse freezer que está de motor novo e tem garantia de 3 meses. Coincidência?! Destino!
-![IMG_20201026_202013](https://user-images.githubusercontent.com/17773224/98174491-bc3d5180-1ed3-11eb-8302-92cd38b75fd0.jpg)
-![IMG_20201026_202024](https://user-images.githubusercontent.com/17773224/98174515-c3fcf600-1ed3-11eb-90e9-744735d97afa.jpg)
-![IMG_20201026_202033](https://user-images.githubusercontent.com/17773224/98174550-d0814e80-1ed3-11eb-8ae3-bcf3cacfdd5c.jpg)
-![IMG_20201026_203604](https://user-images.githubusercontent.com/17773224/98174566-d6772f80-1ed3-11eb-95fe-bc949cd936a6.jpg)
-![IMG_20201026_203621](https://user-images.githubusercontent.com/17773224/98174571-d9722000-1ed3-11eb-8aea-17689b16935b.jpg)
-![IMG_20201026_203648](https://user-images.githubusercontent.com/17773224/98174590-df680100-1ed3-11eb-9d0d-a1d0a064bfe3.jpg)
 
 
 **_freezer consul 230 (Revisão feita. Temos as gavetas/prateleiras. Cabe 1 de 30L 1 de 20L) (r$ 400)_**
