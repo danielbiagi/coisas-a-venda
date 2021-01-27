@@ -78,15 +78,6 @@ Nunca utilizado mas boa sorte!
 ![IMG_20201026_210348](https://user-images.githubusercontent.com/17773224/98174605-e3941e80-1ed3-11eb-8031-39f4e21d4f10.jpg)
 
 * * *
-**_refrigerador brastemp super freezer 470 (r$ 400)_**
-![IMG_20201203_221537968_MP](https://user-images.githubusercontent.com/17773224/101112864-0261ff80-35bd-11eb-804f-2f2fd0438747.jpg)
-![IMG_20201203_221544949_MP](https://user-images.githubusercontent.com/17773224/101112867-042bc300-35bd-11eb-932b-740d2836e2a2.jpg)
-![IMG_20201203_221653003](https://user-images.githubusercontent.com/17773224/101112869-068e1d00-35bd-11eb-9300-4401c45557b8.jpg)
-![IMG_20201203_221701012](https://user-images.githubusercontent.com/17773224/101112876-09890d80-35bd-11eb-9020-7406001c17a2.jpg)
-![IMG_20201203_221706700](https://user-images.githubusercontent.com/17773224/101112883-0beb6780-35bd-11eb-913c-a7e740089dfc.jpg)
-![IMG_20201203_221728481_MP](https://user-images.githubusercontent.com/17773224/101112888-0ee65800-35bd-11eb-953f-4524e3a2e36a.jpg)
-
-* * *
 **_Fermentador Bombona 60L com torneira e poço térmico (r$ 110)_**
 ![IMG_20201203_222141484](https://user-images.githubusercontent.com/17773224/101112909-17d72980-35bd-11eb-8f12-1aadc0331bdb.jpg)
 ![IMG_20201203_222425268](https://user-images.githubusercontent.com/17773224/101112949-29b8cc80-35bd-11eb-957b-6195539d39c3.jpg)
