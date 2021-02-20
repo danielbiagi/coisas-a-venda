@@ -85,13 +85,6 @@ Todas as peças que tem da geladeira estão nessa imagem (não tem os plástico 
 ![IMG_20201203_222209561](https://user-images.githubusercontent.com/17773224/101112920-1d347400-35bd-11eb-9d75-16df8f1fdd68.jpg)
 
 * * *
-**_Fermentador Bombona 50L com torneira (r$ 90)_**
-![IMG_20201203_222326780](https://user-images.githubusercontent.com/17773224/101112934-21f92800-35bd-11eb-9558-33d63c6ca0f0.jpg)
-![IMG_20201203_222348737](https://user-images.githubusercontent.com/17773224/101112938-24f41880-35bd-11eb-90e1-855a74841dc4.jpg)
-![IMG_20201203_222354498](https://user-images.githubusercontent.com/17773224/101112946-27567280-35bd-11eb-9705-3bbfb2d0c863.jpg)
-![IMG_20201203_222317404_MP](https://user-images.githubusercontent.com/17773224/101112924-1f96ce00-35bd-11eb-9774-2748a6782b4f.jpg)
-
-* * *
 **_Fogareiro industrial_ + Smart Mash (r$ 600)_**
 Está com o Smart Mash (https://www.smartmash.com.br/) instalado e permite que vc brasse carregando a receita e tendo a leitura da temperatura em tempo real.
 ![IMG_20201026_220347](https://user-images.githubusercontent.com/17773224/98174715-10e0cc80-1ed4-11eb-993c-3ecc0f837821.jpg)
@@ -118,7 +111,7 @@ VIRGEM
 ![IMG_20201026_211609](https://user-images.githubusercontent.com/17773224/98174624-ec84f000-1ed3-11eb-85a4-f38457a0de7a.jpg)
 
 * * *
-**_Chiller de contra-fluxo (r$ qué pagá quanto?)_**
+**_Chiller de contra-fluxo (r$ 60?)_**
 ![IMG_20201203_223549260](https://user-images.githubusercontent.com/17773224/101112956-2d4c5380-35bd-11eb-8e03-0e29e2e1be5d.jpg)
 
 ![IMG_20201203_223603789](https://user-images.githubusercontent.com/17773224/101112980-34736180-35bd-11eb-9d2c-7fbd359f31ab.jpg)
