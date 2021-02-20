@@ -7,10 +7,6 @@ Sumário:
 * * *
 **ITENS NO ALTO DO IPIRANGA, FRETE POR CONTA DO COMPRADOR OU A COMBINAR**
 
-**_Árvore de natal 9 andares de 9 braço - 1 quebrado = 80 (r$ 80)_**
-Dá pra secar bastante garrafa, sanitizar, e ainda sobra lugar pra por mais umas garrafas.
-![IMG_20201026_211219](https://user-images.githubusercontent.com/17773224/98174610-e5f67880-1ed3-11eb-9d02-ad47c378f345.jpg)
-
 * * *
 **_Brewstand Indupropil (r$ 500)_** ##brewstand
 Esse brewstand fez milhares de litros de cerveja mas está pronto para fazer dezenas de milhares mais. A estrutura comporta panelas até de 103 litros (que também temos para vender), comprando coisas em lote podemos fornecer um desconto bacana. 
@@ -71,14 +67,8 @@ Nunca utilizado mas boa sorte!
 ![IMG_20201026_203403](https://user-images.githubusercontent.com/17773224/98174554-d24b1200-1ed3-11eb-8259-918373e532aa.jpg)
 ![IMG_20201026_203429](https://user-images.githubusercontent.com/17773224/98174558-d414d580-1ed3-11eb-9ba0-908377ee8e7a.jpg)
 
-
 * * *
-**_freezer consul pratice 240 preto-amador (r$ 200) (Feio, mas fiel. Temos as gavetas/prateleiras, mas entortamos placa para entrar 2 fermentadores de 30L)_**
-![IMG_20201026_210334](https://user-images.githubusercontent.com/17773224/98174598-e131c480-1ed3-11eb-9108-65a556b2c990.jpg)
-![IMG_20201026_210348](https://user-images.githubusercontent.com/17773224/98174605-e3941e80-1ed3-11eb-8031-39f4e21d4f10.jpg)
-
-* * *
-**_refrigerador brastemp super freezer 470 (r$ 400)_**
+**_refrigerador brastemp super freezer 470 (r$ 350)_**
 Todas as peças que tem da geladeira estão nessa imagem (não tem os plástico da porta)
 ![WhatsApp Image 2021-01-27 at 16 28 40](https://user-images.githubusercontent.com/17773224/106043428-29b8e280-60bd-11eb-8eb4-724783bd1491.jpeg)
 ![IMG_20201203_221537968_MP](https://user-images.githubusercontent.com/17773224/101112864-0261ff80-35bd-11eb-804f-2f2fd0438747.jpg)
@@ -115,11 +105,6 @@ Está com o Smart Mash (https://www.smartmash.com.br/) instalado e permite que v
 ![IMG_20201203_221410648](https://user-images.githubusercontent.com/17773224/101112856-fe35e200-35bc-11eb-8208-ddf87f37224b.jpg)
 ![IMG_20201203_221452306](https://user-images.githubusercontent.com/17773224/101112861-ffffa580-35bc-11eb-9dba-79f29ef29c4a.jpg)
 
-* * *
-**_Barril Keg 20L Tipo S + acoplador S (r$ 450)_**
-![IMG_20201026_212041](https://user-images.githubusercontent.com/17773224/98174645-f6a6ee80-1ed3-11eb-9a79-e0f3dd317f12.jpg)
-![IMG_20201026_212109](https://user-images.githubusercontent.com/17773224/98174653-fad30c00-1ed3-11eb-86eb-64f42b8281a8.jpg)
-![IMG_20201026_212148](https://user-images.githubusercontent.com/17773224/98174673-0292b080-1ed4-11eb-8487-4e33ab64fc9a.jpg)
 
 * * *
 **_Barril Keg 50L Tipo G + acoplador G (r$ 500)_**
