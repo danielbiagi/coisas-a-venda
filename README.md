@@ -27,7 +27,7 @@ Esse brewstand fez milhares de litros de cerveja mas está pronto para fazer dez
 ![IMG_20201203_230121546](https://user-images.githubusercontent.com/17773224/101113022-45bc6e00-35bd-11eb-8e8a-16082add38af.jpg)
 
 * * *
-**_Caldeirões nø 50 (apenas kit) e 55 (r$ 250) (det. abaixo)_**
+**_Caldeirões nø 50 (apenas kit) (det. abaixo)_**
 Panelas + brewstand combo <3
 ![IMG_20201026_200431](https://user-images.githubusercontent.com/17773224/98174346-8304e180-1ed3-11eb-9681-9512fe153d8e.jpg)
 
@@ -36,10 +36,6 @@ Panelas + brewstand combo <3
 Esse kit facilita a brassagem ao fazer a lavagem dos grãos dos grãos continuamente, sem a necessidade de mexer a panela e sem perder eficiência.
 ![IMG_20201026_200518](https://user-images.githubusercontent.com/17773224/98174455-afb8f900-1ed3-11eb-8ae3-dcd9304b8560.jpg)
 ![IMG_20201026_200528](https://user-images.githubusercontent.com/17773224/98174471-b6477080-1ed3-11eb-88ac-a9828ded8eea.jpg)
-
-**_Caldeirão 55 + torneira (103 litros) (r$ 250) _**
-Panela de fervura do tamanho do nosso maior fermentador, coincidência?
-![IMG_20201026_200450](https://user-images.githubusercontent.com/17773224/98174433-a7f95480-1ed3-11eb-8adc-b84d2c867712.jpg)
 
 * * *
 **_chopeira duas torneiras (r$ 300)_**
@@ -79,12 +75,6 @@ Todas as peças que tem da geladeira estão nessa imagem (não tem os plástico 
 ![IMG_20201203_221728481_MP](https://user-images.githubusercontent.com/17773224/101112888-0ee65800-35bd-11eb-953f-4524e3a2e36a.jpg)
 
 * * *
-**_Fermentador Bombona 60L com torneira e poço térmico (r$ 110)_**
-![IMG_20201203_222141484](https://user-images.githubusercontent.com/17773224/101112909-17d72980-35bd-11eb-8f12-1aadc0331bdb.jpg)
-![IMG_20201203_222425268](https://user-images.githubusercontent.com/17773224/101112949-29b8cc80-35bd-11eb-957b-6195539d39c3.jpg)
-![IMG_20201203_222209561](https://user-images.githubusercontent.com/17773224/101112920-1d347400-35bd-11eb-9d75-16df8f1fdd68.jpg)
-
-* * *
 **_Fogareiro industrial_ + Smart Mash (r$ 600)_**
 Está com o Smart Mash (https://www.smartmash.com.br/) instalado e permite que vc brasse carregando a receita e tendo a leitura da temperatura em tempo real.
 ![IMG_20201026_220347](https://user-images.githubusercontent.com/17773224/98174715-10e0cc80-1ed4-11eb-993c-3ecc0f837821.jpg)
@@ -111,7 +101,7 @@ VIRGEM
 ![IMG_20201026_211609](https://user-images.githubusercontent.com/17773224/98174624-ec84f000-1ed3-11eb-85a4-f38457a0de7a.jpg)
 
 * * *
-**_Chiller de contra-fluxo (r$ 60?)_**
+**_Chiller de contra-fluxo (r$ 50)_**
 ![IMG_20201203_223549260](https://user-images.githubusercontent.com/17773224/101112956-2d4c5380-35bd-11eb-8e03-0e29e2e1be5d.jpg)
 
 ![IMG_20201203_223603789](https://user-images.githubusercontent.com/17773224/101112980-34736180-35bd-11eb-9d2c-7fbd359f31ab.jpg)
